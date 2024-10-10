@@ -1,1 +1,1 @@
-# coinmastertiradas
+En [coinmastertiradas.es](https://coinmastertiradas.es/), te proporcionamos los últimos enlaces diarios que te facilitan el acceso a tiradas gratis y monedas. Con nuestra colección de trucos, podrás impulsar rápidamente tu juego y disfrutar de más éxito en Coin Master sin esperar a la próxima oportunidad.
